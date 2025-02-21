@@ -8,13 +8,13 @@ title: "Maillot de bain Shin : Instructions de couture"
 
 ## Étape 1 : Rejoignez le dos
 
-Put your two backs on top of each other with the good sides together, and sew them together along the center back seam.
+Mettez les deux dos endroit contre endroit et cousez la courbe corresponds à la couture dos.
 
 ## Étape 2 : Rejoignez les devants
 
 ### Coudre la couture avant
 
-Put two of your fronts on top of each other with the good sides together, and sew them together along the center front seam.
+Mettez vos devant endroit contre endroit et cousez la la courbe correspondant à la couture devant.
 
 Répétez avec les deux autres avant afin d'avoir deux ensembles identiques.
 
